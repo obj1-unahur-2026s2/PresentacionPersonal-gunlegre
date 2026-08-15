@@ -14,12 +14,16 @@
 - Soy bastante intenso la verdad,si vas a tenerme en tu círculo social tendrás a alguien potencialmente activo y hablando de todo (Si,soy muy sociable)
 
 
-### Mas información 
+## Mas información para conocerme mas a fondo
 - Este es mi primer contacto con github a si que realmente no se si lo que estoy poniendo es relevante, por lo que espero sepan disculparme si le mando cualquiera.
+
+- Posiblemente veas que gran parte de mis planes estan moldeados alrededor de mi pareja,o lo esten y no se noten,y la verdad es que ella es mi eje central gracias a lo que ella aporto a mi vida,cosa que despues de casi 4 años juntos soy incapaz de poner en duda ya,a si que aprovecharé cada oportunidad que se me presente para poder presumirla… ¡como esta! (Tomen foto de mi amada)
+<img width="719" height="824" alt="1000244389" src="https://github.com/user-attachments/assets/b7eed31a-24a7-4942-9c29-19e0a3dcfae2" />
 
 - No me considero una persona a lista,pero si "culta". Tengo conocimiento varios sobre múltiples ciencias o disciplinas (tal vez no a fondo,pero tampoco muy superficial) y lo ADORO; amo fascinarme viendo conceptos de matemáticas,fisica o física cuántica,robotica,astrología,arquitectura,y un largo etc;es posiblemente mi mas grande hobby el quemar mi tiempo libre viendo videos sobre estos temas,solo superado por el de los videojuegos (por lo que me vas a tener constantemente intentando sorprenderte con algún dato que conozco y creo estar seguro de qué si es verdad,al menos demostrar que lo comparto contigo)
 
 - Tal vez estudie programación,pero mis mas grandes sueños son tener una vida tranquila junto a mi amada,pudiendo trabajar desde casa para pasar mas tiempo con ella,y desarrollar mi propia historia y pasarla a novelas,series,juegos,y demas (ya llevo años trabajando en ella)
+
 - Si sos compañero mio o me ves por ahi,tal vez pienses que soy un pesado al estar con otros constantemente,pero yo entiendo mejor lo que estudio cuando trato de explicar y enseñarle a alguien,a parte de que disfruto de enseñar lo poco que vagamente puedo (si,mi debilidad es estudiar solo,o no tener a alguien interesado)
 
 - Mi nombre completo es "Patricio Gabriel Alegre Ibañez" y solo lo quería mencionar por que estoy feliz tanto del nombre como del apellido de mis padres,y no me gusta desplazar el apellido de mi madre.
