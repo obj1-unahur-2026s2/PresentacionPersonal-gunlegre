@@ -6,6 +6,7 @@
 - Me llamo Patricio Alegre pero prefiero "Pato" o mi alias "gunlegre" (Empieza en minúscula,es mi firma)
 <img width="719" height="1146" alt="1000244386" src="https://github.com/user-attachments/assets/292fe625-12c6-4e06-a3b4-1a515569de03" />
 - Se… no esperes una persona seria conmigo,trato de ser gracioso ya que me parece algo bello el sacar una sonrisa en la gente.
+
 - Vivo en Morón,y la verdad que estoy cómodo a si (No tengo intenciones de irme lejos pronto)
 
 - Me encuentro actualmente estudiando aqui en la UNAHUR en la tecnicatura de programación,y tengo toda la intención de trabajar el mayor tiempo posible desde casa.
